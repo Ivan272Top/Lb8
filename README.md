@@ -1,2 +1,2 @@
 #gg
-![Image alt] (https://github.com/Ivan272Top/Lb8/raw/master/ezhednevnye-vyplaty-vygul-sobak-photo-c895.jpeg)
+![Image alt] (https://besplatka.ua/aws/76/07/59/20/ezhednevnye-vyplaty-vygul-sobak-photo-c895.jpeg)
